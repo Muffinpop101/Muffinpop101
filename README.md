@@ -1,5 +1,10 @@
 ## 🍰 Hello! I'm Muffinpop!
+❦ - 20 years old!  ❦ - Aroace! Not attracted or interested! 
+─ ·𖥸· ─
 
+⋆ ★ 🍨 I take commissions, emojis, references, etc! Carrd linked!  I can take payment in pony town supporter, PayPal, cashapp, etc!  
+
+⋆ ★ 🥀 I am NOT a saint, I just try to be respectful when I can. Please tell me if I do anything wrong, I would love to know how to improve myself!
 <!--
 **Muffinpop101/Muffinpop101** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
