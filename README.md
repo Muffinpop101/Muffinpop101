@@ -1,5 +1,7 @@
 ## 🍰 Hello! I'm Muffinpop!
-❦ - 20 years old!  ❦ - Aroace! Not attracted or interested! 
+❦ - 20 years old! 
+❦ - Aroace! Not attracted or interested! 
+
 ─ ·𖥸· ─
 
 ⋆ ★ 🍨 I take commissions, emojis, references, etc! Carrd linked!  I can take payment in pony town supporter, PayPal, cashapp, etc!  
