@@ -4,7 +4,7 @@
 
 ─ ·𖥸· ─
 
-⋆ ★ 🍨 I take commissions, emojis, references, etc! Carrd linked!  I can take payment in pony town supporter, PayPal, cashapp, etc!  
+⋆ ★ 🍨 I do commissions: emojis, references, etc! Carrd and ko-fi linked! I can take payment in pony town supporter, PayPal, cashapp, etc!  
 
 ⋆ ★ 🥀 I am NOT a saint, I just try to be respectful when I can. Please tell me if I do anything wrong, I would love to know how to improve myself!
 <!--
